@@ -1,9 +1,4 @@
-Brrr skibidi dop dop dop dop yes yes yes yes lyrics
+Brrr skibidi dop dop dop dop yes yes yes yes
 
 # about me
-
-[X] good at coding
-
-[X] can solve problems
-
-[/] braindead
+idk what to put here less go
